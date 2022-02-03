@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MovedPond629078
+- 👀 I’m interested in Coding, Minecraft, Microbit
+- 🌱 I’m currently learning Python
+- 📫 How to reach me? Twitter @MovedPond629078
